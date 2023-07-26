@@ -3,6 +3,6 @@
 
 - 👀 I’m interested in developing web Applications
 
-- 📫 How to reach me @Libanabdullahi1080@gmail.com
+- 📫 How to reach me: hello@libanabdullahi.com
 
 
